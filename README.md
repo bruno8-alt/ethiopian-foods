@@ -1,1 +1,1 @@
-# ethiopian-foods
+Ethiopia is also rich in Food varieties , since there are so many Nationalities! 
